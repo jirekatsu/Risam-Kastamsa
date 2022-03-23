@@ -1,2 +1,3 @@
 # Risam-Kastamsa
-just for playing
+Mari membaca
+
